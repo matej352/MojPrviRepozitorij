@@ -1,0 +1,2 @@
+# MojPrviRepozitorij
+Samo za probu
